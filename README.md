@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @sereganikitin
+- 👀 I’m new in world of coding
